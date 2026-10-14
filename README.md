@@ -1,0 +1,1 @@
+# mnu-study-schedule
